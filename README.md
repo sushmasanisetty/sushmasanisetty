@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sushmasanisetty
-- 👀 I’m interested in website Deesign
+- 👀 I’m interested in website Design
 - 🌱 I’m currently learning photoshop
 - 📫 How to reach me -through Linkedin @sushmasanisetty
 
